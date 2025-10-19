@@ -34,7 +34,7 @@ With such a rich set of features, OKX is more than an exchange — it’s an **a
 
 ## **How to Register with OKX Referral Code 10741945**  
 
-Signing up with OKX using the referral code takes only a few minutes. Here’s a step-by-step guide:  
+[Signing up with OKX](https://tinhte.vn/thread/san-okx-la-gi-toan-tap-a-z-va-cach-dang-ky-okex-moi.3921853/) using the referral code takes only a few minutes. Here’s a step-by-step guide:  
 
 1. **Go to the Official OKX Website or App**  
    Download the OKX app from the App Store/Google Play or visit [OKX.com](https://www.okx.com/join/10741945).  
